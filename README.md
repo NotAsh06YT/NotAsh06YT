@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NotAsh06YT
+- subscribe to me on youtube yt name:Not_Ash06
+- friend me roblox name:PonyoG06
+- Discord:@cebothegamer
